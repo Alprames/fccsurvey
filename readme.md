@@ -1,0 +1,3 @@
+Wel this is my second asignment for Freecodecamp after the one I made about Gualberto Ibarreto which I think went well. At first I tought that someone would actually look at my project like a moderator or something but it turned out that it doesn't work like that and I actually feel kinda dumb writing this knowing that noone will read it. But hey, I think that's what most people think when writing stuff like this and then you come back after a while and you sorta cringe a little bit.
+
+At least I'm practicing my english I guess. I still need to know what can of survey can I make.
